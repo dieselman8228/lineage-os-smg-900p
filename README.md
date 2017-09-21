@@ -1,0 +1,1 @@
+# lineage-os-smg-900p
